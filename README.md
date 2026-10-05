@@ -1,4 +1,4 @@
 # progintro
 Under development
 
-added a text
+got to get good
